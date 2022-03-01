@@ -3,8 +3,6 @@
 
 # Responsibility
 💫 I am not responsible if you get banned using these (trust me, if you blatantly use them you will) 💫
-
-
 💸 If they do not work please add me on Discord: shib#1337 and I will find a replacement. 💸
 
 Enjoy!
