@@ -7,3 +7,6 @@
 💸 If they do not work please add me on Discord: shib#1337 and I will find a replacement. 💸
 
 Enjoy!
+
+# ⚠️ WARNING
+WARNING: ONE OF THESE IS DETECTED, IT MIGHT BE THE MOD MENU OR DASH MONKEY!!
